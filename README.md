@@ -1,2 +1,12 @@
-# business-website-project
-Modern SEO optimized business website
+
+[gamingpcunder100000pakistan.html](https://github.com/user-attachments/files/26858013/gamingpcunder100000pakistan.html)
+[gamingchairpricepakistan2026.html](https://github.com/user-attachments/files/26858014/gamingchairpricepakistan2026.html)[seochecklist.html](https://github.com/user-attachments/files/26858026/seochecklist.html)
+[shop.html](https://github.com/user-attachments/files/26858025/shop.html)
+[success.php](https://github.com/user-attachments/files/26858024/success.php)
+[successpayment.html](https://github.com/user-attachments/files/26858022/successpayment.html)
+[terms.html](https://github.com/user-attachments/files/26858021/terms.html)
+[aipcanalyzer.html](https://github.com/user-attachments/files/26858020/aipcanalyzer.html)
+[checkout.html](https://github.com/user-attachments/files/26858019/checkout.html)
+[custommousepadstudio.html](https://github.com/user-attachments/files/26858017/custommousepadstudio.html)
+[custompcbuilder.html](https://github.com/user-attachments/files/26858016/custompcbuilder.html)
+[failedpayment.html](https://github.com/user-attachments/files/26858015/failedpayment.html)
